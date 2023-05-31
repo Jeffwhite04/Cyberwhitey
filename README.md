@@ -1,2 +1,2 @@
 # Cyberwhitey
-Www.cyberwhitey.com
+Cyberwhitey Website Description
